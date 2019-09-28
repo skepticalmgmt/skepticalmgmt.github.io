@@ -19,9 +19,9 @@ I have found the following thought experiment useful for harmonizing the rationa
 
 Now, think about those funerals, your own and theirs. What things are being said at their funeral that you wished were being said at yours? Take some time, write a list and come back to it.
 
-I hope that your realization will be similar to mine: for the most part, their funeral will talk about their relationships with others and the impact they had on their lives. Little time will be paid to the deceased's job title. Their salary will go unremarked, and their air miles unmentioned.
+I hope that your realization will be similar to mine. For the most part, their funeral will talk about their relationships with others. The impact they had on their children, their spouse, their friends and their colleagues. Little time will be paid to the deceased's job title. Their salary will go unremarked, and their air miles unmentioned.
 
-However, that person’s imaginary eulogy may include some lines that strike you deeply. “He always knew the right thing to say to cheer me up.” “She never let me down, even when everything was falling apart.” “He was the best father a boy could ever have.”
+However, that person’s imaginary eulogy may include some lines that strike you deeply. “He always knew the right thing to say to cheer me up.” “She never let me down, even when everything was falling apart.” “He was the best father a boy could ever have.” "She loved me, no matter what."
 
 Those lines are your key to overcoming envy. You can’t control the lucky breaks you’ve already experienced, nor change the ones your rival has endured. You can’t know what challenges and rewards await you in the future. All you can control is how prepared you are to face the next moment that will continue your journey through life.
 
