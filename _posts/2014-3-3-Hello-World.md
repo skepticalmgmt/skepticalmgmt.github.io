@@ -9,9 +9,9 @@ While not all the modern skeptical community is worth being involved in, the mai
 * An awareness of the psychological biases that impact our ability to make good decisions (or even perceive the world accurately)
 * A healthy distrust of authority, especially in light of the above point about biases
 * A healthy respect for discussion and debate
-* A home for hard-won knowledge about the world (a sort of cultural memory)
+* A home for hard-won knowledge about the world; a sort of cultural memory
 
-When I became a manager, I had already incorporated the skeptical mindset into my daily life; treating the practice of management in a skeptical manner was as natural to me as breathing. However, I quickly learned that the skeptical movement hasn’t penetrated the broader culture as much as I and the community hoped, and some of the thoughts and processes that I took for granted were looked at with suspicion or even scorn.
+When I became a manager, I had already incorporated the skeptical mindset into my daily life; treating the practice of management in a skeptical manner was as natural to me as breathing. However, I quickly learned that the skeptical movement hasn’t penetrated the broader culture as much as I hoped, and some of the thoughts and processes that I took for granted were looked at with suspicion or even scorn.
 
 This blog is my venue to convince those that can be convinced [1] that a skeptical mindset and a management job are complementary, even ideal characteristics. I’m hoping for two outcomes:
 1. Existing managers can adopt some of the skeptical mindsets and processes, which hopefully makes them more productive, better able to separate fact from fiction and build an environment that their teams can thrive within; and
@@ -19,6 +19,5 @@ This blog is my venue to convince those that can be convinced [1] that a skeptic
 
 A skeptical manager is humble, aware of her limitations and the limitations of others (her reports, her boss, her boss’ boss, her clients and her competitors), and works to overcome those limits where appropriate. A skeptical manager is constantly learning about the world and about herself. And most importantly, a skeptical manager shares what she’s learned with her peers, building a broader base of understanding for us to further build upon in turn.
 
-Is this a tall order? Does it matter?
 
 [1] See the Skeptical Glossary for "backfire effect"
